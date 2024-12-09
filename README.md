@@ -10,8 +10,8 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
+* Something interesting about me is my birthdays in december 
+* Ask Mr. Vu anything: hello
 * List your sports and extracurriculars you participate in
 my names joe
 tennis
